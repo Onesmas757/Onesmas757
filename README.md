@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: akandwanahoonesmas757@gmail.com
 - 😄 Pronouns: I
 - ⚡ Fun fact: What! Do you kmow me.
--->Hello out there! Do you know how interesting it is to learn programminglastly?
+-->Hello out there! Do you know how interesting it is to learn programming?
+Lastly, let's get started.
 
